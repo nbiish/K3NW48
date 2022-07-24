@@ -6,7 +6,7 @@
 
 - Welding Process Technology Cert 2019
 - Heavy Equipment Technology AAS 2021
-- Hopefully Applied Mathematics BAS 2027?
+- Hopefully Aerospace Engineering BAS 2027!
 
 
 - Help me get there with BTC 
