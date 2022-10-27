@@ -13,4 +13,6 @@
 - 38nw156158fYJCG9b8v4JQZgrSADqFqnJF
   
   
-![alt text](https://wakatime.com/share/@nbiish/f1d11149-3124-4141-a99a-f41146ddbd04.svg)
+![alt text](https://wakatime.com/share/@nbiish/f1d11149-3124-4141-a99a-f41146ddbd04.svg)  
+  
+![alt text](https://wakatime.com/share/@nbiish/fb418304-163c-4c38-b45d-b0570dcf7354.svg)  
