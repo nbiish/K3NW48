@@ -13,4 +13,4 @@
 - 38nw156158fYJCG9b8v4JQZgrSADqFqnJF
   
   
-<figure><embed src="https://wakatime.com/share/@nbiish/f1d11149-3124-4141-a99a-f41146ddbd04.svg"></embed></figure>
+!alt text <figure><embed src="https://wakatime.com/share/@nbiish/f1d11149-3124-4141-a99a-f41146ddbd04.svg"></embed></figure>
